@@ -1,2 +1,2 @@
 # hello-world
-Temporary repository to learn how to use Github
+BMX Freestyle, 80's Big Hair Metal music, and Skateboarding are my fave's
